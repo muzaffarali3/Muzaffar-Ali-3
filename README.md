@@ -9,7 +9,7 @@
 
 ## 🧑‍💼 About Me
 
-With over 6 years of experience in the freelance sector, I provide top-tier services in project management, data operations, WordPress development, and IT support. My services are tailored for executives, businesses, and high-impact entrepreneurs who value quality, professionalism, and results.
+With over 15 years of experience in the freelance sector, I provide top-tier services in project management, data operations, WordPress development, and IT support. My services are tailored for executives, businesses, and high-impact entrepreneurs who value quality, professionalism, and results.
 
 ---
 
