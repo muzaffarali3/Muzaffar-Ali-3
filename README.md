@@ -75,7 +75,7 @@ Automation: VA Scripts & Workflows
 - **Phone:** +92 301 1350003  
 - **Location:** Lahore, Pakistan  
 - **LinkedIn:** [Muzaffar Ali](https://linkedin.com/in/muzaffar-ali-74850130b)  
-- **Portfolio:** [Google Site](https://sites.google.com/view/muzaffaralifreelancing/)
+- **Portfolio:** [Portfolio Site](https://muzaffarali3.github.io/muzaffarali-portfolio/)
 
 ---
 
